@@ -34,3 +34,7 @@ Hope this helps!
 
 Chris.
   
+I've lost the original manual so thanks to John Williams of Quedgeley Wildlife Photography for reading
+out the format from the manual:
+
+https://www.youtube.com/watch?v=fwOU7tlotu4
